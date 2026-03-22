@@ -1,5 +1,5 @@
 # ponytown
-I usually am in CH (countryhumans) or hetalia area
+I usually am in CH (countryhumans) area
 dont be afraid to ineteract plsssss i dont have anything better to do anyways
 c+h freely i dont care
 do not take HEAVY inspiration, inspo is fine
