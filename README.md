@@ -1,11 +1,2 @@
-im not gonna spend 50000000 hours on this becaus its 11:27pm
-this is mainly just 4 ponytown
-dni over 18, nzis,darkshipper, proshipper,spawnist,, : you get the idea right..
-sometimes svuf, im rarely offtab
-plspls int i dont have anything better to do anyways
-if im online im most likely hanging out w/ oomfs
-fandoms: countryhumans, ihasafacelulz,skibidi toilet ohio 67 mangoe (THIS IS A JOKE.. OKA)
-please tell me if my jokes offend you :( i dont know when i go too far
-she/her/it/they !! ^_^ all of these are really good but most people call me a she
-@mewtuna , @COUNTRY-HUMANS, @fiftystates others mentioned on my profileeeeee
-okay bye my chads laughing emoji x10 
+![me and my madness  . ](https://64.media.tumblr.com/7dc85ce0d2db256eb5019f50896a719b/72ac1787a5fad5cb-7c/s1280x1920/8fa5b1b0eb8077db682361d4598319e6c8123410.jpg![image](https://github.com/user-attachments/assets/79a2d474-d3a7-428e-9887-b2f70ed2380b)
+)
